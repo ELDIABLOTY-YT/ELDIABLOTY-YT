@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ELDIABLOTY-YT
+- 👀 I’m interested in new mods for a new fiveM localhost server that I'm trying to start. So far I am finding it hard to find something for my economy scene as I did not make my server with esx.
+- 🌱 I’m currently learning more and more about the dificulties server owner's went through to make their servers
+- 💞️ I’m looking to collaborate on Nothing rn
+- 📫 How to reach me: eldiablotyyt2@gmail.com or msg me at 0467 186 855 if you have any good economy or other mods for free that you know of.
